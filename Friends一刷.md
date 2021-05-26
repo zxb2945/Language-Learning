@@ -416,3 +416,32 @@ That would've been better.
 
 I have nothing to be ashamed of. 
 
+
+
+## 2020.10.9
+
+1. get sth done    ->    get the problem fixed
+2. I can't make it      (别人邀请你时去不了)
+3. Could you give me a hand? / I have a favor to ask.
+4. What are you up to?  ->  What are you doing?
+5. I'll go with +食物  /  Does it come with +配菜？
+6. Let's grab lunch together.
+7. I wanna pee  /   I wanna visit the wash room.
+8. How did sth go?  ->  Have you done sth?
+9. I'm not a big fan of sth.  /  I don't like...
+10. Sorry?  /   Pardon?
+11. Here you go. 别人要，你给的时候；Here we go.  当什么事准备发生时；There you go.  别人自己提出一个想法时。
+12. Do you mind if I sit here?  /  NO(yes也可以), I don't mind.
+13. I'm not myself today. /  I'm very distracted today.
+14. completely, definitely, truly, hopefully, terribly, seriously...
+15. Sorry, I'm terrible with names. Please tell me yours again.
+16. I forgot what I wanna say.
+17. Both work for me.  吃日料还是中餐
+18. contact sb  /  reach out to sb.
+19. Thank you for having me here.  /  for dinner.  /to your house.
+20. make sure your computer is off before you leave.
+
+
+
+## 2021.1.12
+
