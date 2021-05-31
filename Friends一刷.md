@@ -445,3 +445,20 @@ I have nothing to be ashamed of.
 
 ## 2021.1.12
 
+In other words what we need is not quite a pattern matches.
+
+That happened to satisfy some condition.
+
+To deduce everything true that's relevant to this problem.
+
+He is without a doubt the funniest guy I have ever met.
+
+You better watch out.
+
+And you see, from this point of view.
+
+He's so considerate of my feelings.
+
+What good could possibly come from watching it?
+
+ 
