@@ -461,4 +461,98 @@ He's so considerate of my feelings.
 
 What good could possibly come from watching it?
 
- 
+ I swear it's not even worth dating married guys.
+
+Let's do a selfie.
+
+It's all so overwhelming.
+
+We are having sex whether you're here or not.
+
+Just try to focus your sexual energy on someone else.
+
+In fact from now on.
+
+Right when I'm about to change my opinion of you.
+
+We know you're not feeling 100% today.
+
+How could you tell?
+
+That person was neither female nor wearing pants.
+
+First you break the ice with some kind of a joke.
+
+What's great is you don't mind talking about it.
+
+Honey, you're just in time, I'm about to sing another song.
+
+I'm not sure exactly what they did, but I'm inclined to blame XXX.
+
+Worst case scenario is we borrow some money from my parents.
+
+No need to apologize.
+
+Why do you think he was so worried about me getting bigger?
+
+
+
+I don't think marriage is necessarily the right path for you.
+
+She's being unreasonable.
+
+Doesn't that count for something?
+
+Can't you make an exception?
+
+OK, say no more.
+
+Yeah, as long as it's free.
+
+You're in great shape.
+
+It's definitely exception for me.
+
+You're not gone?
+
+This is none of our business.
+
+I think I can come over.(我可以来过夜)
+
+I am speechless.(我无以言表)
+
+Did I? Let's refresh.
+
+
+
+## 2021.2.25
+
+It's a shame that you miss the movie.
+
+It's really underpriced.
+
+How bad do you want to smoke right now?
+
+It's just a metaphor.
+
+Some women don't necessarily agree with her either.
+
+I feel like I'm taking advantage of you.
+
+Maybe we are just overreacting.
+
+Who said something better will come along.
+
+She better have a good reason.
+
+I'll be right back.(我马上回来)
+
+What kind of social situation are you comfortable with?
+
+I should at least tell her how I feel.
+
+Always will be.(永远都是如此)
+
+It's a shame you two didn't get to spend more time together.
+
+You go first.
