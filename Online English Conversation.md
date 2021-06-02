@@ -182,8 +182,45 @@ What do you do on weekends?
 
 Sorry, I was wrong. You are not supposed to eat up all the food,  because it will embarrass the host who would think they don't supply enough food.
 
-Did you just take part in the activity?
+Did you take part in the activity just now?
 
 Didn't you talk to anyone just now?  I mean the event has already started for a while.
 
 In the previous years since I came to Japan, I often travelled.
+
+
+
+## 9 Chatterbox Daily (Tokyo/London/Singapore) 20210531
+
+I heard you could watch the Olympic games if you had  vaccinated or gotten a PCR test.
+
+Do you have any plans about Olympic games?
+
+
+
+## 10 ✨9 PM✨ Night Call - FREE Online English Chat Room 20210602
+
+Your accent sounds like Italian.
+
+Are you going to get vaccinated?
+
+It's good for your friends and family, I mean, suppose you are unfortunately infected, it will reduce the risk to infect other people.
+
+The ticket of Disneyland is easy to be sold out, I just checked the website this afternoon, it's so busy.
+
+My friends told me Disneyland is for kids, and Disney sea is more like for adults. Although I have never been there, I know it.
+
+As long as you are a kid in your heart.
+
+You work so late, will you be paid for overtime? Or you're just hardworking.
+
+There are lots of people who come to Tokyo as IT engineers.
+
+You have a blackboard in you room.
+
+I never knew about it.
+
+The account can not be anonymous.
+
+
+
