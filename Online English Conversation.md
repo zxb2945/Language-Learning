@@ -224,3 +224,27 @@ The account can not be anonymous.
 
 
 
+## 11 【FREE】🍄 Online ENGLISH Conversation 🍄 20210607
+
+ I have been there, I went there last year and it was lovely. I saw the snow mountain from a train by the sea.
+
+Toyama art museum
+
+Because it's our first time meeting, we need to find some topic to break the ice.
+
+In a peaceful time, sport game is a war. 
+
+That village nearby the Japan sea is called Venice of Japan.
+
+It seems like his father liked kobe beef, so he named his son by the city.
+
+After a lot of tough games, he was eventually getting fond of basketball. It's touching.
+
+The comic is a important Japanese cultural influence, I mean lots of foreigner know Japan by comics.
+
+
+
+
+
+
+
