@@ -244,7 +244,34 @@ The comic is a important Japanese cultural influence, I mean lots of foreigner k
 
 
 
+## 12 [[Meet 3people in 30mins\]👩🏻‍💻 英語を話す [1 on 1 every 10mins⏰]] 20210608
 
+Is there anything that you are interested in? / Is there anything that surprise you.
 
+There are lots of skyscrapers.
 
+What subject do you teach?
 
+I keep up with the pace of technological change by my work. I mean, AI, machine learning...  Although I am not able to develop them,  at least I can learn from those thing.
+
+Are you a student ?
+
+less than a year.
+
+When she passes by a coffee shop,  she always enters into it and buy some coffee bean if they are good enough.
+
+If I drink coffee,  my appetite will be bad.
+
+I have been there twice.
+
+Vietnam
+
+I went to university abroad
+
+What a wedding in japan is like?
+
+People are social animals.
+
+Have a good day.
+
+Nice talking to you.
