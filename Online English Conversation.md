@@ -285,3 +285,32 @@ In my previous job,  we often have new members to join our team.  There is usual
 So I realize sometimes although maybe you could totally do a subject by you own efficiently,  you still distribute your work assignment to your co-workers especially new members. Sometimes  cooperation is more important than efficiency.  
 
 I mean eventually you need team, not team need you.
+
+
+
+## 14 Online English Conversation Club for Free 21:30PM-22:10PM Saturday 20210612
+
+It's not night there where you live, isn't it?
+
+There are any differences between the life of two countries?
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
