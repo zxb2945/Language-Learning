@@ -275,3 +275,13 @@ People are social animals.
 Have a good day.
 
 Nice talking to you.
+
+
+
+## 13 Job Interview Questions 20210612
+
+In my previous job,  we often have new members to join our team.  There is usually such a problem that we   can't take advantage of the power of the team. I mean at first old members would rather do all the work by their own rather than distribute to new members. Because they found it's more efficient. And this lead a problem that new members feel they are unneeded. They come soon and leave soon.
+
+So I realize sometimes although maybe you could totally do a subject by you own efficiently,  you still distribute your work assignment to your co-workers especially new members. Sometimes  cooperation is more important than efficiency.  
+
+I mean eventually you need team, not team need you.
