@@ -248,6 +248,10 @@ The comic is a important Japanese cultural influence, I mean lots of foreigner k
 
 Is there anything that you are interested in? / Is there anything that surprise you.
 
+-> What surprised you the most when you first came here?
+
+->On the good side...  On the bad side...
+
 There are lots of skyscrapers.
 
 What subject do you teach?
