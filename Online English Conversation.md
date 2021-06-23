@@ -300,11 +300,39 @@ There are any differences between the life of two countries?
 
 
 
+## 15  ✨9 PM✨ Night Call - FREE Online English Chat Room 20210621
+
+I like a wide range of movie types. Especially French love movies. Like Erick Rohmer, his movies always happen in the 1980s. It's not always romantic, but it's common and realistic.
+
+If you want to date a girl, it's a good choice to watch horror movie in the cinema. Because usually in the cinema, it's dark and the movie on the screen is scary. The atmosphere is perfect for intimacy touch. You won't look awkward.  Of course it's based on the girl like you as well.
+
+ About watching movie in the cinema, there was an interesting thing happened in my days at university. I went watching a famous movie directed by Li'An , one of my favorite movie directors. When I finished it and went out of cinema, I met a young teacher who I knew by chance. She asked me what I doing. I just said watch a movie. She looked surprised and asked me further you just watched movie in the cinema alone? At that time , I started to realize it's a little wired to watch movie in the cinema by yourself.
+
+It depends on how you define your hometown. If you mean a village, apparently no. But if you mean a province, which is the biggest unit in China... 
+
+There is a book just beside you.
+
+About that，I'm reading a book which is about my work. I insist on reading it before I sleep everyday. Actually, even you just read a little bit everyday, eventually you could finish it.  So don't worry about the book is thick, just insist on it. That's a good truth I have learned. 
 
 
 
+## 16 [Meet 3people in 30mins]👩🏻‍💻 英語を話す [1 on 1 every 10mins⏰] 20210622
 
+It's good if you have a exercise habit. We always sit like this,  it usually leads to mental weary.
 
+So which language do you use to communicate with barber?
+
+So it made sense he misunderstood your requirement about your hairstyle.
+
+In fact , I always wanted to have long hair. But when I was a student , my parents didn't like me with long hair. since I graduated from my college, I earn money by myself, I could ignore their **complain**. 
+
+Tokyo is suitable for unmarried man.
+
+That restaurant is on the **roof** of a tall building.
+
+There is just no **right person** for me.
+
+It is **on my bucket list**. To explore some delicious international food in Tokyo.
 
 
 
