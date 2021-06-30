@@ -336,9 +336,29 @@ It is **on my bucket list**. To explore some delicious international food in Tok
 
 
 
+## 17 [Meet 3people in 30mins]👩🏻‍💻 英語を話す [1 on 1 every 10mins⏰] 20210629
 
+So you are worried about **the side effect** of vaccination.
 
+If I had chances to get vaccinated,  I would. Because it's not only safe for you but also for the people **around you**. You know sometimes it's possible that there are not any symptoms **happening** on you even you have been infected.  
 
+My girlfriend decided it and I just follow her,  I don't even know where it is **at first / at the beginning**. It's OK for me as long as it is far enough away from Tokyo.
+
+What most surprised you when you **first arrived in** Australia?
+
+Apparently, you went through it eventually.
+
+In Tokyo, you could live well even if you couldn't speak Japanese at all. 
+
+I went there for hiking before,  **drove** on the **sea bridge** between Chiba and Tokyo.
+
+For the majority of Japanese, they don't eat **the feet of pig** and chicken. 
+
+As long as you can overcome your fears to it.
+
+Where did you travel?
+
+What's place you have travelled most impress you?
 
 
 
