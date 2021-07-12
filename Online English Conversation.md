@@ -364,25 +364,27 @@ What's place you have travelled most impress you?
 
 ## 18 [Meet 3people in 30mins]👩🏻‍💻 英語を話す [1 on 1 every 10mins⏰] 20210706
 
-西湖你要联合着山一起去看，并且有许多文化景观。
+If you just visit the West Lake separately, it maybe seem boring. But plus the mountains around the lake,  I mean they are **an integrated whole** as a **tourist site**，you may have different **judgements**.  I **used to go hiking** every weekend **back in the first year after I graduated** from University, I worked there.
 
-在新加披，你回去马来西亚吗，你们交流方便吗？日常生活中的语言使用情况？
+You are **in Singapore**,  so do you often **go to Malaysia**, it it convenient about transportation and communication?  Which language do you speak most frequently in you daily life? How about Chinese?
 
-跟国际朋友交流可以开阔视野，你们之间会有不同的文化交流。
+It could **open your mind/ broaden your horizons** to talk with international people, such as **culture exchanges**.
 
-我的名字不算太普通，我所认识的人中没有和我同名的。
+It's not so common, at least there is **no one I know** who has the same name with me.
 
-在我的观念里，横滨和东京就是同一个地方
+In my opinions, Yokohama and Tokyo are the same city.
 
-养育孩子确实很辛苦
+It's really **hard** to raise children.
 
-我必须去池袋工作
+I have to go to Ikebukuro **for work** every day.
 
-你很难碰到来自你国家的人吗？
+Is it difficult for you to **meet** people from your country?
 
-你读书之前就有工作经验吗？
+Do you have work experiences before you get your PhD? /(He's getting his PhD at N.Y.U)
 
-我现在还不确定以后会不会在日本工作
+It's a difficult question for me. I'm still confused whether or not to work in Japan in the future.  
+
+
 
 
 

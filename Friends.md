@@ -556,3 +556,76 @@ Always will be.(永远都是如此)
 It's a shame you two didn't get to spend more time together.
 
 You go first.
+
+
+
+## 2021.7.13
+
+Quite a long ago.
+
+It’s hugely relevant.
+
+How do you think your husband feel about you sitting here with me?
+
+This is **a big break** for me.
+
+Did any of the rest of you guys think that when you first met me?
+
+Although, **back in college**, Suzanne did.
+
+What’s with your hair?
+
+I don't **see** why not.   (我觉得我行)
+
+You just have a quality.    (你就是有种(gay)的气质)
+
+So you can **tell**？     (你能看得出来？)
+
+Are you **wearing makeup**？
+
+We **used to** work together.
+
+So why I was busting my ass to make this delicious Thanksgiving dinner.
+
+We **make a pact**.   (有协定)
+
+I bought my son his first condoms.   (buy sb. sth.)
+
+How would I know ？I wasn't here.
+
+That makes more sense.
+
+You think？
+
+Nice talk.     (说得好)
+
+My sister is giving us her place for the weekend.
+
+How did you get there？      (你从哪里得到这个结论?)
+
+It's time for you to swoop in.   (现在正是你趁虚而入的时候)
+
+Get off.     (滚开)
+
+You're **10 times prettier than** she is.
+
+There's no way for me to tell you this.
+
+Don't you know it yet?
+
+I wasn't **faking**.   (我没有假装)
+
+It's been half an hour 已经过了半小时了
+Where have you been
+Would you like to have dinner sometime
+I have never known you to pay money for any kind of Girlfriend
+I Ended up telling her everything
+They haven't even slept together yet
+I know there's no way I'm not gonna get there in time
+Every day you're becoming more and more like your mother
+We just don't happen to know any woman that I know how to play poker
+So now we draw cards
+It's partially my fault
+One of the things I was most worried about the quarantine
+From now on , you don't get to talk to other people
+You can send it back whenever
